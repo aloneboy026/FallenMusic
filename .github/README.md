@@ -23,7 +23,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ 
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://te.legra.ph/file/c4699e0baa8846428b722.jpg">
+  <img src="https://te.legra.ph/file/c873a5d452ab0ac0f491d.jpg">
 </p>
 
 <p align="center">
